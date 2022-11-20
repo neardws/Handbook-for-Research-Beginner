@@ -1,2 +1,2 @@
 # Handbook-for-Research-Beginner
-Share experiences on how to start your research
+Share experiences on how to start the research
